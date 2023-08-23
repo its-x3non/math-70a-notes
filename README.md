@@ -1,2 +1,3 @@
 # math 70a
- yippie
+ no notes, only answers :3 
+ when they happen lol
